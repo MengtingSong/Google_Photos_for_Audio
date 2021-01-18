@@ -4,7 +4,7 @@
 ### Mentor: Hung Tran
 
 ## Final Demo:
-https://drive.google.com/file/d/1ws1XqA7OVZu7pHnnvf0ltsi7zQIwM8Gx/view?usp=sharing
+https://drive.google.com/file/d/1zuOzdbY1BfDTBahFk-WSUImIGLIgrus_/view?usp=sharing
 
 ## 1st Presentation:
 https://docs.google.com/presentation/d/1DKc6HNFBpreAhHW4wiEahErnnkVCoF6U2zxHVuzRsHo/edit#slide=id.p
